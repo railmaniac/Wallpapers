@@ -1,4 +1,0 @@
-Wallpapers
-==========
-
-Wallpaper sources
